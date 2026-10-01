@@ -1,5 +1,5 @@
 # Receitas da vovó
-## as melhores comdidas do mundo
+## as melhores comidas do mundo todo!
 
 - Bolinho de chuva
 - Bolo de cenoura
